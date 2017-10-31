@@ -7,8 +7,7 @@ Vitamins & Hormones, v. 83, p. 1-23, 2010)
 
 Bibliografia:
 Global deodorants market. Global reports center. GOSREPORT. Disponível em:
-<http://www.gosreports.com/global-deodorants-market-is-expected-to-reach-usd-17-55-
-billion-by-2020/>. Acesso em 16 de julho de 2017.
+<http://www.gosreports.com/global-deodorants-market-is-expected-to-reach-usd-17-55-billion-by-2020/>. Acesso em 16 de julho de 2017.
 
 LUNDSTRÖM, J. N.; OLSSON, M. J. Chapter one-functional neuronal processing
 of human body odors. Vitamins & Hormones, v. 83, p. 1-23, 2010.
