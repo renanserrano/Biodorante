@@ -11,7 +11,7 @@ Existem diversas maneiras de colaborar, você pode submeter dúvidas/incoerênci
 **Você tambm pode:**
 * Dar um Star, para acompanhar as atualizações
 * Dar um Fork, para criar uma solução paralela à esta, que no futuro pode ou não ser recombinada com esta
-
+* Apoiar a pesquisa: [**CATARSE**](http://catarse.me/desodorante)
 
 ## História:
 
