@@ -2,8 +2,8 @@
 Em só 2 vídeos do youtube, são >600k views
 O mais oferecido nos blogs é o leite de magnésio e o bicarbonato de sódio, porém, esses produtos são adaptados (gambiarra) e solucionam em partes o problema, a nossa solução vai proporcionar a estes pequenos empreendedores e consumidores finais criar seus produtos, utilizando uma fonte confiável e segura
 * [Cacau Schwarz](http://www.youtube.com/watch?v=syQBnEe1GIs)
-* [Bela Gil] (https://www.youtube.com/watch?v=20zMQZDV6GM)
-* [https://www.youtube.com/watch?v=aeUF2_ZiiEs]
+* [Bela Gil](https://www.youtube.com/watch?v=20zMQZDV6GM)
+* https://www.youtube.com/watch?v=aeUF2_ZiiEs
 
 
 -----
